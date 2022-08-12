@@ -12,6 +12,7 @@
 - 💬 É só falar ...
 - 📫 Me chame por email: stefany_mikaelle@hotmail.com 
 - 😄 Ou no Linkedin: https://www.linkedin.com/in/stefany-mikaelle-da-silva-lima-b71560120/
+- 💻 Meu canal no YouTube: https://www.youtube.com/channel/UC4TjDVw0TXdZZoCwbTP9_2Q
 
 ## Minha formação...
 
