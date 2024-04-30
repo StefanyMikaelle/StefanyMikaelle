@@ -20,7 +20,7 @@
   </p>
 </div>
 
-- 🔭 I’m currently working on **F1rst [Santander]**
+- 🔭 I’m currently working on **Software Engineer [Itaú] **
 
 - 👯 I’m looking to collaborate on **new projects**
 
